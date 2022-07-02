@@ -1,1 +1,1 @@
-# Liberacion de PS4 mediante ItsCubanFreak Tool
+# Liberacion de PS4 mediante ItsCubanfreak GoldHEN Version 2.2.2
